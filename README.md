@@ -18,7 +18,7 @@ If you want to ask me something, do not hesitate to contact me. Thank you.
 > https://github.com/CabboShiba/UnlockerVip-Cracked
 > 
 
-All Discord and trash cheats :)
+All Discord tools and trash cheats :)
 
 # Do you want to contact me?
 Discord: FreeCabbo10#6558
